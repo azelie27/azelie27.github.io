@@ -1,6 +1,3 @@
 # bettermotherfuckingwebsite
 
 
-# bettermotherfuckingwebsite
-# bettermotherfuckingwebsite
-# bettermotherfuckingwebsite
